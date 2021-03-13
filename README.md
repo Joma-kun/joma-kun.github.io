@@ -1,1 +1,0 @@
-# joma-kun.github.io
